@@ -1,4 +1,4 @@
-***ERROR347***
+ ***ERROR347***
 **IL CAOS E’ UN ALGORITMO APERTO**
 
 
